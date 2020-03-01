@@ -97,10 +97,17 @@ Phần Thưởng:
 🆘Lưu ý: Mệnh giá nạp thẻ cào sẽ bị mất chiết khấu 20% so với ATM
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖
+
 Các địa chỉ chính thức:
+
 ✳️ Trang chủ: tinhkiem2.com
+
 ✳️ Đăng ký: id.tinhkiem2.com
+
 ✳️ Fangpage: fb.com/tinhkiem2
+
 ✳️ Groups: fb.com/groups/tinhkiem2
+
 ✳️ Tải game: tinhkiem2.com/Download
+
 ✳️ Tải Auto Game: chickenauto.com/download
